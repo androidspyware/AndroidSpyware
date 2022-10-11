@@ -53,7 +53,8 @@ Fully Undetectable and Persistent.
 
 ```
 https://t.me/nocrimer
-```[TELEGRAM CONTACT](https://t.me/nocrimer) 
+```
+[TELEGRAM CONTACT](https://t.me/nocrimer) 
 
 <!-- PRIVATE VERSION -->
 ## Private Version
@@ -83,7 +84,8 @@ Many More
 
 ```
 https://t.me/nocrimer
-```[TELEGRAM CONTACT](https://t.me/nocrimer) 
+```
+[TELEGRAM CONTACT](https://t.me/nocrimer) 
 .
 
 .
